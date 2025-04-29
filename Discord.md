@@ -10,3 +10,5 @@ HELP WITH SCRIPTS AND ALL : [bisket's hideout, Help & All](https://discord.gg/Ej
 
 [LOGO]
 LOGO WILL BE IN AT [MAY 31](about:blank)
+OR
+[MAY 17](about:blank)
